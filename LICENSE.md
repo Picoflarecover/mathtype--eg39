@@ -1,4 +1,4 @@
-# 
+# Enhance MathType for PC | MathType for Windows with MathType for PC | MathType for Windows exclusive Utility: interactive-notebooks & scripting, the #1 utility. Includes
 
 
 
